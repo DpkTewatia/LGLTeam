@@ -6,4 +6,6 @@ Mainly Mod Menu is updated and maintained. As i'm getting more busy these days, 
 
 To contact, just go to Mod Menu repo and read. There is no contact to my brothers since they want to remain private
 
-As of March 2021: We began to share all sources of Free Fire and PUBG that we got from someone to stop beggers. Don't ask if you don't know how to use, ask on UnknownCheats instead, best site ever 😅😅
+See my repositories👉: https://github.com/LGLTeam?tab=repositories
+
+As of March 2021: We began to share all sources of Free Fire and PUBG that we got from someone to stop beggers🤣. Don't ask if you don't know how to use, ask on UnknownCheats instead, best site ever 😅😅
