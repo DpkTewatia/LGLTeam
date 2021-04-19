@@ -8,6 +8,8 @@ To contact, just go to Mod Menu repo and read. There is no contact to my brother
 
 See my repositories👉: https://github.com/LGLTeam?tab=repositories
 
+See my gists👉:https://gist.github.com/LGLTeam
+
 As of March 2021: We began to share all sources of Free Fire and PUBG that we got from someone and anywhere to stop beggers, and shared project we've been kept secret 🤣. Don't ask if you don't know how to use, ask on any forum sites or [UnknownCheats](https://www.unknowncheats.me/forum/index.php) instead 😅😅
 
 ![](https://github-readme-stats.vercel.app/api?username=LGLTeam&show_icons=true&theme=radical)
